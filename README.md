@@ -2,6 +2,5 @@
 
 ![Screenshot (1)](https://user-images.githubusercontent.com/127299101/223804009-95c26c29-c1d3-453b-9af1-d3e231b7fa99.png)
 
+![3re2](https://github.com/khuong-d4ng/image/assets/127299101/c6005e0a-787e-444f-81b2-bd401cec516c)
 
-
-![3re2](https://github.com/khuong-d4ng/image/assets/127299101/21969ba4-a470-419c-bf14-11cd106aa735)
